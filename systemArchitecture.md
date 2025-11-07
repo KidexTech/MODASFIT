@@ -180,3 +180,9 @@ This document explains how the system works technically, describing the frontend
 - Subscription tiers for premium expert access
 
 - Offline content caching
+
+
+## 👩‍💻 Author
+
+- Esther Adeniran
+> Product Management Track – Stage 4A Submission
