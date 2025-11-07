@@ -1,15 +1,15 @@
 
 
-#🌸 MODASFIT
+🌸 #MODASFIT
 Empowering Mothers to Stay Fit, Informed, and Confident
 
 
-#💡 What Is MODASFIT?
+💡 #What Is MODASFIT?
 
 MODASFIT is a supportive digital platform that helps first-time mums and nursing mothers stay fit and healthy after childbirth.
 It offers personalized guidance from certified professionals on nutrition, safe workouts, and lifestyle habits, while connecting mothers with a private, understanding community.
 
-#❤️ Why It Matters
+❤️ #Why It Matters
 
 Motherhood is truly beautiful, but it can also be physically and emotionally challenging. Many new mothers struggle to regain fitness, find trustworthy health advice, or connect with others going through similar experiences.
 MODASFIT bridges this gap by combining expert advice, community support, and safe product recommendations to help mothers thrive during their postpartum journey.
